@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @iLogical2609
+- 👋 Hi, I’m iLogical
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning (I don't feel to telling you that)
 - 💞️ I’m not looking to collaborate
-- 📫 Please don't reach me ...
+- 📫 Please don't reach me 
